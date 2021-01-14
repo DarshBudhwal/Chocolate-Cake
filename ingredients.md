@@ -1,0 +1,8 @@
+1. Maida [2 cup]
+2. Cocoa powder [2 tsp]
+3. Baking Soda  [1/2 tsp]
+4. Baking Powder [1/2 tsp]
+5. Milk [3/4 cup]
+6. Oil [1/2 cup]
+7. Whipp cream powder [1/4 cup]
+8. Milk [1/2 cup]
